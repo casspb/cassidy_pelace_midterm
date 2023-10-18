@@ -1,2 +1,2 @@
 # cassidy_pelace_midterm
-midterm debate about trees between cassidy and diego
+midterm debate about trees between cassidy and diegos
